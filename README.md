@@ -1,5 +1,5 @@
 # Nad
-Saya adalah Nadifa Aisyah, seorang mahasiswi S1 semester 5 di Fakultas Ekonomi dan Bisnis, Jurusan Akuntansi. Saya memiliki ketertarikan yang besar pada bidang Digital Marketing. Selama kuliah, saya aktif terlibat dalam kepanitiaan di kampus yang mengasah kemampuan kepemimpinan, public speaking, komunikasi, dan kemampuan bekerja sama dalam tim. Saya juga orang yang mudah beradaptasi dengan hal-hal baru.
+Saya adalah Nadifa Aisyah, seorang mahasiswi S1 semester akhir di Fakultas Ekonomi dan Bisnis, Jurusan Akuntansi. Saya memiliki ketertarikan yang besar pada bidang Digital Marketing. Selama kuliah, saya aktif terlibat dalam kepanitiaan di kampus yang mengasah kemampuan kepemimpinan, public speaking, komunikasi, dan kemampuan bekerja sama dalam tim. Saya juga orang yang mudah beradaptasi dengan hal-hal baru.
 Saat ini, saya sedang menempuh pendidikan di Universitas Airlangga dalam Program Studi Akuntansi sejak tahun 2022. Sebelum itu, saya merupakan lulusan SMA Negeri 1 Pamekasan, Jurusan Ilmu Pengetahuan Alam, dengan nilai akhir rata-rata 90.
 Pengalaman Organisasi
 Saya telah berpartisipasi dalam beberapa kepanitiaan di kampus yang memberikan saya berbagai pengalaman berharga:
